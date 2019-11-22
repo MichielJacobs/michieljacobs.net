@@ -1,1 +1,1 @@
-The personal website of Michiel Jacobs is hosted overhere.
+The personal website of Michiel Jacobs
